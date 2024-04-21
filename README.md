@@ -1,3 +1,1 @@
-im bomblol. @Crystldev on yt, crystldev on discord.
-lua/py coder, py im stil learning n stuff.
-idk
+hi. Im bomblol. idk why i chose this name lol, but yeh, i do roblox scripts and python.
